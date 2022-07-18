@@ -9,4 +9,5 @@ You can connect with me via any of the platforms below 👇🏾
 
 
 [Twitter](https://twitter.com)
+
 [LinkedIn](www.linkedin.com/in/ojo-christiana)
